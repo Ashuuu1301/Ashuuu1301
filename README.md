@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ashuuu1301
+- 👋 Hi, I’m Ashutosh Bhagwat
 - 👀 I’m interested in 3D Modeling
 - 🌱 I’m currently in BE Fourth Year
 - 📫 How to reach me https://linktr.ee/Mr.Ashuu
