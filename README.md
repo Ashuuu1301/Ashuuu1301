@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ashuuu1301
 - 👀 I’m interested in 3D Modeling
-- 🌱 I’m currently in BE Third Year
+- 🌱 I’m currently in BE Fourth Year
 - 📫 How to reach me https://linktr.ee/Mr.Ashuu
 
 <!---
